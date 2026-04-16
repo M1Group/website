@@ -118,7 +118,7 @@ We help locals keep their homes and businesses powered, safe, and running smooth
 
 ### How do I know if I need an electrician immediately?
 
-If your lights are flickering, you smell burning near outlets or your switchboard, you've lost power to part of your home, or a circuit breaker keeps tripping -- that's urgent. Electrical faults aren't just inconvenient, they can be dangerous for your family. Our team responds quickly to emergencies. Call us on 0400 000 000 and we'll prioritise getting your power restored safely.
+If your lights are flickering, you smell burning near outlets or your switchboard, you've lost power to part of your home, or a circuit breaker keeps tripping -- that's urgent. Electrical faults aren't just inconvenient, they can be dangerous for your family. Our team responds quickly to emergencies. Call us on [0400 000 000](tel:0400000000) and we'll prioritise getting your power restored safely.
 
 ### Can you handle all types of electrical work?
 
@@ -138,7 +138,7 @@ We're a local, family-owned business that lives and works in the communities we 
 
 ### Do you handle urgent electrical problems outside regular hours?
 
-Yes, we're available around the clock. Electrical faults don't wait for convenient times, especially during storms or extreme weather. Whether it's a power outage on a Saturday night or a sparking outlet on a public holiday, our emergency electricians are ready to respond. Call 0400 000 000 anytime, and we'll get someone to you as quickly as possible to restore your power safely.
+Yes, we're available around the clock. Electrical faults don't wait for convenient times, especially during storms or extreme weather. Whether it's a power outage on a Saturday night or a sparking outlet on a public holiday, our emergency electricians are ready to respond. Call [0400 000 000](tel:0400000000) anytime, and we'll get someone to you as quickly as possible to restore your power safely.
 
 ---
 
